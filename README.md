@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AppleSheep941
+- 👀 I’m interested in ... a lot of stuff.
+- 🌱 I’m currently learning ... a lot of stuff.
+- 💞️ I’m looking to collaborate on ... a lot of stuff.
+- 📫 How to reach me ... donuts-tinier.0x@icloud.com
